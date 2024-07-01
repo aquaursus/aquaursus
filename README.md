@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @aquaursus
+- 👀 I’m interested in playing bass
+- 🌱 I’m currently learning how to not die 👍
+- 💞️ I’m looking to collaborate on stuff that is a learning experience or useful for me
+- 📫 How to reach me: aquaursus99@icloud.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: Japan has the highest snowfall levels in the world
